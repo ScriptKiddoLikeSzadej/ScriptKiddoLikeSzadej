@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xBeefyOreoX
+- 👀 I’m interested in Python 🐍
+- 🌱 I’m currently learning Python 🐍
+- 💞️ I’m looking to collaborate on nothing xD
+- 📫 How to reach me ★†★#4136 (discord)
